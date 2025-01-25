@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ..projects..
 - 📫 How to reach me ..thandekiledlamini1@outlook.com..
 - 😄 Pronouns: ..she..
-- ⚡ Fun fact: ..cusrious..
+- ⚡ Fun fact: ..curious..
 
 <!---
 nomaddlamini2024/nomaddlamini2024 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
